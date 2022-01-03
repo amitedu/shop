@@ -1,7 +1,7 @@
 Current:
-1hr 24min 30sec
+1hr 42min 30sec
 
-https://youtu.be/-0C04evVV9A?t=3632
+https://youtu.be/-0C04evVV9A?t=6170
 
 
 //------------------------------------------//
